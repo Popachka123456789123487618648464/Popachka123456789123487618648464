@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Popachka123456789123487618648464
+- 👀 I’m interested in ???
+- 🌱 I’m currently learning ???
+- 💞️ I’m looking to collaborate on ???
+- 📫 How to reach me ???
+- 😄 Pronouns: ???
+- ⚡ Fun fast: ???
